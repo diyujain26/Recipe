@@ -1,0 +1,13 @@
+Take the potato or raw banana and grate it in a bowl. 
+Then cut one green chilli and add it to that bowl .
+Then add turmeric powder,red chilli powder , garam masala , cumin powder , salt s per the measurements given in ingredients.
+Add the soaked poha and the coriander leaves to that bowl and then mix all the ingredients properly.
+You can use your hand to mix it evenly.
+After the dough is prepared make small - small balls out of it and keep them in a plate. 
+Now take an appam pan and heat it. 
+Add one drop of pure ghee in every section of the pan and grease it well. 
+Then place the balls prepared one in each section . 
+Then cover it with the lid and let it cook for one minute on medium flame. 
+Then remove the lid and turn all the balls upside down. 
+Again cover it with the lid and cook it for a minute on the medium flame. 
+Now check all the balls and if they are ready then unmould them and place it in a plate and serve it with tomato ketchup or green chutney.
